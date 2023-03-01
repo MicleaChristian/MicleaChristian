@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MicleaChristian
-- 👀 I’m interested in a periodic training in anything informatic related
+- 👀 I’m interested in an internship in anything informatic related (Third Year)
 - 📫 How to reach me : christian.miclea@hotmail.com
 
 <!---
